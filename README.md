@@ -1,6 +1,6 @@
 # HARAN J RESUME
 # Haran J
-*3rd Year Law Student*
+*4th Year Law Student*
 
 📞 +91 82484 62123  
 ✉️ [haranj2804@gmail.com](mailto:haranj2804@gmail.com)
